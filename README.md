@@ -1,0 +1,1 @@
+# instalador_sc_digital_anviz
